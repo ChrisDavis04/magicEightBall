@@ -1,0 +1,1 @@
+If you're wondering why there are long print statments talking about random things and stories, don't worry as I purely wrote those for my own amusement as I found it funny. However, if you find it that it just makes the entire thing harder to read then I apologize.
